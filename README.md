@@ -6,7 +6,7 @@
 ### Um prazer! 
 Faço Engenharia de Telecomunicações, 
 sou apaixonada por Design, 
-amo fazer crochê ou assistir sessões e filmes. 
+amo fazer crochê ou assistir séries e filmes. 
 
 Comecei a pouco a programar e espero me aprofundar e tornar isso minha realidade.
 
